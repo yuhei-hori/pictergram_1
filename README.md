@@ -1,1 +1,0 @@
-# pictergram_1
